@@ -4,24 +4,35 @@ Hallo, Nama saya Elisabeth Hermina Tania Tanaboleng, kalian bisa memanggilku den
 
 # Pendidikan
 -- Institut Teknologi PLN (S1 Sistem Informasi).
+
 -- SMA Katolik Syuradikara Ende (2020-2023 Jurusan IPS).
 
 # Pengalaman Organisasi
 -- Kepala Departemen kerohanian Keluarga Mahasiswa Katolik ITPLN (2024-2025).
+
 -- Anggota Departemen Kerohanian dan Kekeluargaan di HIMDA Pattimura (2024-2025).
+
 -- Anggota Kepanitiaan DIKSAR di Himpunan Jurusan Sistem Informasi (2024).
 
 # Keahlian
 -- Kerja Sama Tim.
+
 -- Manajemen Waktu.
+
 -- Kepemimpinan.
+
 -- Komunikasi.
+
 -- Public Speaking.
 
 # Kontak
 -- Email: ttanaboleng@gmail.com
+
 -- Instagram: tnyatnblng
+
 -- Facebook: Tania Tanaboleng
+
 -- No.tlpn: 082145647901
+
 
 Kembali ke Profil Kontak Saya
